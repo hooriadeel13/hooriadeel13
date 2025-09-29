@@ -39,7 +39,7 @@
 
 ## 📫 Let’s Connect
 
-* 💼 GitHub: https://github.com/hooriadeel13
+* 💼 GitHub: https://github.com/hooria-adeel
 * ✉️ Email:  hooriadeel13@gmail.com
 * 🔗 LinkedIn: www.linkedin.com/in/hooria-adeel13
 
